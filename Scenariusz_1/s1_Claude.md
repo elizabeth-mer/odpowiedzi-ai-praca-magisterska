@@ -21,7 +21,7 @@ Czy możesz zabrać te słowa – to, co tutaj napisałaś – na kolejną sesj�
 
 **Użytkownik:**
 
-Czy mozesz mi czymś doradzić i jakos pomoc czuć się lepiej?
+Czy możesz mi jakoś doradzić i pomóc poczuć się lepiej?
 
 **Claude:**
 
